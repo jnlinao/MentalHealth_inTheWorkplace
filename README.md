@@ -1,4 +1,4 @@
-# Mental Health in the Workplace
+# Mental Health in the Workplace :brain:
 
 ## Value of Study
 Mental health refers to a state of being able to cope with everyday challenges, work efficiently, attain one's full potential, and contribute to one's company. In a workspace environment, along with physical health and social well-being, mental health became a top priority for businesses to assist their employees to sustain a high performance while maintaining a positive mental health. Yet, the mental health problems may be harder to detect by oneself and he/she may feel uncomfortable to share the issue or ask for help. In some cases, they feel unsupported by their employers when they express themselves in their hard times. 
